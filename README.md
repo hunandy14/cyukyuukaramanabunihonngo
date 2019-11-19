@@ -1,0 +1,2 @@
+# cyukyuukaramanabunihonngo
+ちゅきゅうからまなぶにほんご
